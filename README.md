@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **mariahussain9098@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/jobs/application-settings/?hideTitle=true](https://www.linkedin.com/jobs/application-settings/?hideTitle=true)
+- 📄 Know about my experiences [Resume](https://drive.google.com/drive/u/0/my-drive)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
