@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **mariahussain9098@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/my-drive](https://drive.google.com/file/d/1R6QNptu_-rqy4mCFljtS7fRycwZam-Zl/view)
+- 📄 Know about my experiences [https://drive.google.com/drive/u/0/my-drive](https://drive.google.com/file/d/1R6QNptu_-rqy4mCFljtS7fRycwZam-Zl/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
